@@ -1,3 +1,3 @@
 # treize
 
-not finish……30%
+not finish……47%
